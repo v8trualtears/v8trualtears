@@ -1,0 +1,3 @@
+-Hi there<3, I’m @v8trualtears
+-discord - s. ,
+-Have a great day beautiful<3
